@@ -71,7 +71,7 @@ Numerous Verbatim Repetition. A DOOR SHUT mode. Actively blocking out new stimul
 Comprehending all of this happening in real time actueality - a blizzard of insigts arise spontaneously in mind. Then, is the hard work of EVALUATING, before NAMING, and ARTICULATING
 what is ACTUAL REALITY. That is the PROCESS. No one owns ACTUAL REALITY. No one owns the ability or make sense of ACTUAL REALITY. No one owns the inability to see actual reality. How many people own the abilty to block your awareness of actual reality? Look at that.
 
-There we have the EDGE. A highly elusive concept to render to mind - the edge of human comprehension. But with careful naming... allHumanMinds are given the ability to immediately access the two varions of the concept. 
+There we have the EDGE. A highly elusive concept to render to mind - the edge of human comprehension. But with careful naming... allHumanMinds are given the ability to immediately access the three (distinct) variations of the concept: Original or Twisted, or Void.
 
 A. The concept (physically) in mind by way of electrons (aZepto). 
 
