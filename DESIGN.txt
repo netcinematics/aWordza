@@ -16,3 +16,49 @@ And POSTED through various formats like TWITTER.
 
 A twitter bot is planned. As is a UI for MINTING.
 
+## Architecture
+
+root level has APP folder.
+
+In that folder is BITZ folder.
+
+An html index will load and serve the bitz.
+
+No need for a node server, if there is a numeric naming convention.
+
+If next is null, we are at end. If last is null, we are at the beginning. 
+
+Logic to Loop. Horizontally. Through BITZ.
+
+Metadata to link BITZ together.
+
+BITZ can have vertical sections. Up and down scrolling.
+
+Possibly a display for markdown.
+
+Possibly links from markdown.
+
+Metadata, hardcoded, can provide best meta links.
+
+METALINKS could be section, populated by METADATA.
+
+Found two great links for how to statically load .txt.
+
+Combined with naming convention starting at 1000++
+4 digits makes the id obvious it is an id.
+
+Also a folder called MSGz for...
+automated social media messages like tweets.
+
+## Construction phase:
+
+Fork COZMOSPAZE (?)
+
+Create new view. Into copy index.
+
+Reduce to NEW TEMPLATE: METALINKz_APP
+
+Multiple MetaLINKz
+
+MetaLynx w/ AlpineFalcon
+
