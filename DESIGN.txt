@@ -56,9 +56,42 @@ Fork COZMOSPAZE (?)
 
 Create new view. Into copy index.
 
-Reduce to NEW TEMPLATE: METALINKz_APP
+Reduce to NEW TEMPLATE: METALINKz_TEMPLATE
 
 Multiple MetaLINKz
 
-MetaLynx w/ AlpineFalcon
+- Static Programmable LINKs.
+All populated with METADATA, by num ID:
+100 - MetaLynx w/ AlpineFalcon
+1000 - aWordza
+100000 - Orby_in_SPAZEBOTZ
 
+a for in/of object key loop.
+
+
+- With DYNAMIC LINKS.
+load the text to screen word-by-word.
+
+Providing AI NLP to the streams.
+
+Programmable syntax - can be inlcuded here.
+# Topic (for example)
+
+But then much more. 
+
+Specificaly, by wordmatching, we can linkback all references, to a singular definition!
+
+the way to LINKBACK. Is a wordsearch while loading words. 
+
+Then, where a match is found (aWordza) it replaces the word
+
+with the link, or set of links like 2_, 3_, 4_.
+
+
+VOTE. the vote is based on digital wallets, or later soul tokens.]
+
+there will be textual comments for affirm or dissent.
+
+And there will be ability to LINKBACK to NEW TOKENS, for members.
+
+Tool tips to see snippets.

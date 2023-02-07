@@ -59,7 +59,6 @@ And the Word-Rhyming Project was born!
 ## The Project Expands.
 
 I didn't pursue a graduate degree in CS because - I found a great job that made great money!
-
 But I kept up the C++ project... to this day (20 years later). In my day job, I was building C++ databases with DLL Modules.
 
 So it was a PERFECT FIT for The Rhyming Engine. I shared the idea with my Architect at the time over lunch. To my surprise he was enthused with the concept.
@@ -80,8 +79,7 @@ Which is how, gradually... with naivete... I began expanding to POSTFIX, and man
 
 ## A PC App
 
-The company didn't go anywhere. Because I realised that the target market was... non existant.
-
+The company didn't go anywhere. Because I realised that the target market was non existant.
 Also this was before GitHub, and also before JavaScript Open-Source. So it went into hibernation for many years.
 
 I still wish I would have written it in JavaScript because it would be a very powerful online engine. That is what it is transforming into now, in Web3.
