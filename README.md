@@ -4,7 +4,9 @@ A C++ Artificial Intelligence project, for RHYMING SONG LYRICS, with astonishing
 
 ---
 
-## Artificial Intelligence project to Rhyme Words in C++.
+## Artificial Intelligence project to Rhyme Words in C++. Originally written in 2002. Was re-written in React, JavaScript, 2020, and NodeJS 2023. This repository was extended to contain DRAFT documents intended for use in Ontology / Taxonomy aspect of organizing all the WORDS and CONCEPTS into digital visualizations - already available in the REACT frontend.
+
+## History
 
 It started as a "LEXICAL TOKENIZER", using "NATURAL LANGUAGE PROCESSING", an obscure branch of AI, suggested to me by a professor, for a graduate project. It was fascinating!
 
