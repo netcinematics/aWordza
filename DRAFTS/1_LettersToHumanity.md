@@ -157,7 +157,7 @@ The METADATA of SONG LYRICS was exceptionally tranformational. But not in ways e
 
 In short,
 
-A) Trying to express CONCEPTz, that (actually still) exist beyond words.
+#### A) Trying to express CONCEPTz, that (actually still) exist beyond words.
 
   - We are missing words. Thousands of them, if not more. 
 
@@ -176,7 +176,7 @@ A) Trying to express CONCEPTz, that (actually still) exist beyond words.
   - We easily do better, if we do not insist on self-distruction.
 
 
-B) Listening to WORDS of Songs, can INSPIRE/AFFECT many CONCEPTS, into mind.
+#### B) Listening to WORDS of Songs, can INSPIRE/AFFECT many CONCEPTS, into mind.
 
    In aWordza, the word for a CONCEPT coming to mind is aSparka.
 
@@ -191,11 +191,13 @@ B) Listening to WORDS of Songs, can INSPIRE/AFFECT many CONCEPTS, into mind.
    - CONCEPTZ : PROJECTED/REFLECTED, from MIND_To_MIND, across All_Human_Mind.
 
 
-C) Actual_Reality or NON_Actual_Reality in all “CONCEPTZ BENEATH WORDS”?
+#### C) Actual_Reality or NON_Actual_Reality in all “CONCEPTZ BENEATH WORDS”?
 
 aWordza solves all those pesky language blockers - and more. Here is how.
 
-3) Language NAMING - CONVENTION - add super powers! **
+---
+
+### 3) Language NAMING - CONVENTION - add super powers! **
 **
 Software Developers will recognize a syntax “borrowed” from COMPUTER SCIENCE, called “CamelCase”. It is a naming-convention, in aWordza, adding liberty to characters.
 
@@ -209,7 +211,7 @@ All caps, is more functional when it means: QUICK-SCAN-ABILITY for KEY-CONCEPTS 
 
 More importantly - use Staggered-CAPS - for the ability to combine multiple words - into single NEW~WORDZ. And All-CAPS - to speed read, and make KEY CONCEPTZ in a blog - easier to read!
 
-4) Ontology and Taxonomy - more SuperPowers!
+### 4) Ontology and Taxonomy - add more SuperPowers!
 
 In code, every word has to be precise, and every named variable has to be unique. These same concepts can be applied to naming conventions like GEOLOGY and MEDICINE. aWordza is a dynamic scientific naming convention - for ANY CONCEPT - with linguistics. Applied to any medium, music, wordgame, or philosophy - the result of new words is potentially infinite.
 
@@ -219,7 +221,7 @@ As if opening, the front-door to the human mind - and a blizzard of concepts BOT
 
 All of those words, will be stored online in a Taxonomy and Ontology. And this is the start of that!
 
-CONCLUSION:
+## CONCLUSION:
 
 Welcome to aWordza! Admittedly, the SYNTAX is dry, but later - it gets FUN! Like riding a bicycle: at first scary, then exciting, and eventually boring. The act of WORDCRAFTING… can be deeply ENLIGHTENING. The results are continually more profound than comprehensible. To see, please try, and share it with friends!
 
