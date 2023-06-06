@@ -112,24 +112,26 @@ EXAMPLE of building a Wordza from the word 'example':
 
 means: act of providing examples of all of aWordza - the ontology of clarified words..
 
-INNOVATION:
+##### INNOVATION:
 
 - Ontology and Taxonomy for all human actz, or any concept that exists.
 
-          - These are just example, but actual use is limitless. Here is one more. 
+- These are just example, but actual use is limitless. Here is one more, "a little z". 
 
-#### SYNTAX 4: ~a_Little_Z~
+#### SYNTAX 4: ~a_Little_z~
 
-’*…z…’ - “little z” :
+’*…z…’ - “little-z” :
 
   - a “little z” replaces ‘s’ or ‘soft c’, anywhere in any word. 
-  - Pronounced the same as a ‘S’ : means, CLARIFIED, 
-  - REMARKABLE. Specifically, differentiates a new word. 
+  - Pronounced zzzz, the same as a ‘S’ 
+  - means, CLARIFIED, UNIQUE MEANING, or REMARKABLE
+  - Specifically, a new word. 
+
 EXAMPLE:
 
-‘Wordz’ - is specifically different from Words*,* its clarified a unique, specific meaning.
+> ‘Wordz’ - is CLARIFIED version of Words*. For more PRECISE meaning.
 
-1) LANGUAGE GOALS
+### 1) LANGUAGE GOALz
 
 Enhance English by making words:
 
@@ -137,31 +139,59 @@ Enhance English by making words:
 
 - EASY TO LEARN, and SELF-DESCRIPTIVE.
 
-- Actually accurate! Not vague, ambiguous or cliche.
+- Actually accurate! Non_Ambiguous, Non_Vague, Non_Disceptive.
 
-- High Density Concepts - packed into few letters and words.
+- High Density Concepts : packed into fewest letters and words.
 
-- Avoid useless grammer rules. Add powerful grammer rules.
+- Avoid limiting-grammer-rules. Add powerful-grammer-rules.
 
-2) LANGUAGE PURPOSE
+### 2) LANGUAGE PURPOSE
 
-The original purpose was to rhyme song lyrics. But that aim has changed many times, after writing the METADATA for SOCIAL~PHRASES. Because, trying to define language, as metadata has a way of forcing open the FRONT-DOOR to all HUMAN-MIND.
+The original purpose was to rhyme song lyrics. But the use has changed many times. It was at one time aWordaGamea. But after writing the METADATA for SOCIAL~PHRASES - there was a very specific breakthrough. Because, language-metadata is like a FRONT-DOOR to All_HUMAN_MIND.
 
-It was astonishing to stumble upon. But anyone_can_see - if we chooze_to_look!
+It is astonishing to see. 
 
-The METADATA of SONG LYRICS is actually tranformational. It is the ACTZ of a series of VIEWZ or Thought-Experiments.
+> Anyone_Can_See, when We_Chooze_To_Look!
 
-A) Trying to express CONCEPTS, that actually exist beyond words.
+The METADATA of SONG LYRICS was exceptionally tranformational. But not in ways expected. The SYNTAX reveals: WORDz and CONCEPTz into VIEWz of ACTz, by a series of Thought_Experimentz.
 
-  - We are actually missing words. 
+In short,
 
-  - Our current words are FAR from precise. 
+A) Trying to express CONCEPTz, that (actually still) exist beyond words.
 
-  - We can actually do better at passing CONCEPTS from mind-to-mind. 
-B) Listening to WORDS of Songs, can AFFECT many CONCEPTS, in mind.
+  - We are missing words. Thousands of them, if not more. 
 
-  - Like “painting pictures in minds”, what are the concepts PROJECTED/REFLECTED? 
-C) What is the original “CONCEPT BENEATH WORDS”?
+  - Our current words are FAR from precise. FUZZY and BLURRY of VIEWz and FOCUZ.
+
+  - We can easily do better - at being more ARTICULATE.
+
+  - We can easily do better - to name things WHAT_THEY_ARE (not the person who found it)
+
+  - We can easily do better - to name all things in self-descriptive way, non cryptic way.
+
+  - We can easily do better at passing CONCEPTS from mind-to-mind. 
+
+  - We easily do better, to stop arguing, and work better at EXISTING_TOGETHER.
+
+  - We easily do better, if we do not insist on self-distruction.
+
+
+B) Listening to WORDS of Songs, can INSPIRE/AFFECT many CONCEPTS, into mind.
+
+   In aWordza, the word for a CONCEPT coming to mind is aSparka.
+
+   > 'aSparka' - means : actual act of spark.
+
+   - short-form of 'aSparkaMinda' : actual act of a spark in mind.
+
+   - Like “painting pictures in minds”. By yourself - or others.
+
+   - EXAMINE and NAME: "CONCEPTS beneath WORDS", into "CONCEPTZ beneath WORDZ"
+   
+   - CONCEPTZ : PROJECTED/REFLECTED, from MIND_To_MIND, across All_Human_Mind.
+
+
+C) Actual_Reality or NON_Actual_Reality in all “CONCEPTZ BENEATH WORDS”?
 
 aWordza solves all those pesky language blockers - and more. Here is how.
 
