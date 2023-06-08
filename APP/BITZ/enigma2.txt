@@ -403,13 +403,13 @@ The actual limit of all_human_mind. Some of us do not want to see it.
 ---
 
 
-#### aUpa and aDowna are on Y-AXIS.
+#### aUpa and aDowna are on Y_AXIS.
 
   - The more ACTUAL CONCEPTZ is higher, and the more CONFUZED and ILLUZIONED is lower.
 
-  - XAXIS is aTHOUGHTFUL or unTHOUGHTFUL.
+  - X_AXIS is aTHOUGHTFUL or unTHOUGHTFUL.
 
-  - ZAXIS is  time, as CURRENT and FUTURE and PAST.
+  - Z_AXIS is  time, as CURRENT and FUTURE and PAST.
 
   It is a phenomenal rendering to behold. NeverBuilt. But could be...
 
@@ -425,17 +425,17 @@ The actual limit of all_human_mind. Some of us do not want to see it.
 aMAXaCLARIA
 
 aAWAa
-aEXTRA - 
+aWISDOa
+aEXTRA  
 
-aSOCIOa - 
-aSEEKa - 
+aFOCOa  
+aSEEKa  
+aSOCIOa 
 
-aFOCOa - 
-aLIMITa - 
-
+aLIMITa 
 aNEUTRa
 
-- aEnandDissa --- aSparkaDarka
+- aEnandaDissa --- aSparkaDarka
 
 aNONa
 
@@ -444,9 +444,20 @@ aRESPONZa
 
 aINVERZa
 aREVERZa
+aPROJECTa
 
 aINSISTa
 aREFUZa
+aRETALIa
+aSUPPRESSa
+
+aCONSTRUCTa
+aRECOLLECTa
+
+aDISTORTa 
+aDISTRACTa
+aDISCEPTa
+
 
 
 ### STRATA of VIEWZ: `~aVIEWaSTRATa~`
@@ -462,21 +473,23 @@ aREFUZa
 #### `~CONCEPTZ_behind_WORDZ~`: 
   - actual justficiaton of REASON, is BOTH of CLEAR_CONCEPTS and FUZZY_CONCEPTS.
 
-  - so the TWO_STEP_PRACTICE, 
+  A TWO_STEP_PRACTICE is : look at concepts behind words, then name them - to best_reflect_actual_reality.
+  But there are MANY more THOUGHT-EXPERIMENTS beyond that one.
+
+
+  1) LOOK_AT CONCEPTZ_behind_WORDZ, then...
   
-  1) LOOK_AT CONCEPTS_behind_WORDS
+  2) LOOK_AT: WORDZ_behind_ACTZ.
+
+  3) LOOK_AT: WORDZ_mismatch_ACTZ
+
+  4) LOOK_AT: WORDZ_encourage_ACTZ
   
-  and 
-  
-  2) LOOK_AT: WORDS_behind_ACTZ.
+  5) LOOK_AT: WORDZ_discourage_ACTZ
 
-  and
+  6) LOOK_AT: WORDZ_reflect_ACTUREALITY
 
-  3) LOOK_AT: WORDS_mismatch_ACTZ
+  7) LOOK_AT: WORDZ_disreflect_ACTUREALITY
 
-  and
-
-  4) LOOK_AT: WORDS_discourage_US
-
-  5) LOOK_AT: ACTZ_discourage_US
+  8) LOOK_AT: WORDZ_invert_ACTUREALITY
 
