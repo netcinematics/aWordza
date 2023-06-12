@@ -18,3 +18,47 @@ Based on English, letters are used in creative ways to add extra meaning.
 
 ACTZ - means remarkable human action, or behavior.
 
+---
+
+### aWORDaGAME
+
+---
+
+aAWAa
+aWISDOa
+aEXTRA  
+
+aFOCOa  
+aSEEKa  
+aSOCIOa 
+
+aLIMITa 
+aNEUTRa
+
+- aEnandaDissa --- aSparkaDarka
+
+aNONa
+
+aREACTa
+aRESPONZa
+
+aINVERZa
+aREVERZa
+aPROJECTa
+
+aINSISTa
+aREFUZa
+aRETALIa
+aSUPPRESSa
+
+aCONSTRUCTa
+aRECOLLECTa
+
+aDISTORTa 
+aDISTRACTa
+aDISCEPTa
+
+aTANGENTa
+aEnTangenta
+aDisTangenta
+

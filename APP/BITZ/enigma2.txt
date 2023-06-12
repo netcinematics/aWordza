@@ -458,7 +458,11 @@ aDISTORTa
 aDISTRACTa
 aDISCEPTa
 
+aTANGENTa
+aEnTangenta
+aDisTangenta
 
+All of the above can be viewed throught the MATRIX_of_EN_and_DIS
 
 ### STRATA of VIEWZ: `~aVIEWaSTRATa~`
 
