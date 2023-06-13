@@ -23,7 +23,7 @@ Hello!
 ## `~aWORDZa~` & `~aWORDaGAME~` 
 <br>
 
-Lib of ENHANCED_ENGLISH, for Ai, llm, nlp.
+Libs of **ENHANCED_ENGLISH**, for *Ai, LLM, & NLP*.
 
 > HELP others PRACTICE_MAGIC_of_aWORDZa! 
 
@@ -33,20 +33,20 @@ Lib of ENHANCED_ENGLISH, for Ai, llm, nlp.
 
 > anyone_can_see, new *CONCEPTZ & VIEWZ* - instantly!
 
-- RHYME cool new SONG LYRICS, as a WORD GAME.
+> ~ *RHYME cool new SONG LYRICS, as a WORD GAME!*
 <br>
 
 ----
 <br>
 
  
-### `~aWORDZa~` DESCRIPTION:
+###  DESCRIPTION:
 
-Based on English, *camel-case-letters* are used, to add extra meaning.
+`~aWORDZa~`, based on English, is a *camel-case-letters* language, and *mix-case-language*, allowing anyone to create TOKENZ of *wordbitz*, that *capture-new-concepts*.
 
-In many cases, **significant_extra_meaning**...
+In many cases, **significant_extra_meaning** is realized.
 
-As you can see, aMIXCase is used as a *Name-Convention*.
+As you can see, aMIXCase is used as a *Name-Convention*. Also below, is an example of *add-single-letters-to-add-significant-meaning*.
 
 #### GOALS: 
 
@@ -93,7 +93,16 @@ For most artificial intelligence, natural language tokenizers, META-DATA-CONTEXT
 
 > Finally, reduced to the following KEY_CONCEPTZ.
 
+<br>
+
+---
+
 ## EXAMPLE-EXPERIMENT:
+
+
+---
+
+<br>
 
 To **Enhance_English_Language** (EEL/`~aEELa~`), 
 
@@ -133,9 +142,13 @@ It may seem like nothing, but please DO NOT UNDERESTIMATE the **ONTOLOGY & TAXON
 
 Thousands of concepts never before articulated this way.
 
+<br>
+
 ---
 
-## aWORDaGAME
+# aWORDaGAME
+
+<br>
 
 Inspired by Artifical Intelligence project as a graduate student at university.
 
@@ -158,17 +171,12 @@ Here is how. <br>
 Where in CODE, results intwo **programming variables**,
 
 of *WORDZ & CONCEPTZ*.
-
-
 ```JS
-
 let WORDZ = {}
 let CONCEPTZ = {}
 //*ability inheritance. AI:~`tativity`~.
 WORDZ.metadata = CONCEPTZ.
-
 ```
-
 Above is **standard-practice** for AI:NLP, to inherit **context-metadata**.
 But it also SPARKED many insights afterward.
 
@@ -177,6 +185,8 @@ But it also SPARKED many insights afterward.
 - a *very important* initial discovery.
 
 ---
+<br>
+
 ### `~CONCEPTS_under_WORDS~` 
 
 Just "like opening a creaky door, into the future"!
@@ -192,6 +202,7 @@ Look exactly, at the CONCEPT_beneath_the_WORDS, is the idea.
 `~CONCEPTS_under_WORDS~`
 
 ---
+<br>
 
 ### SOCIAL-PHRASE TOKENZ
 
@@ -217,49 +228,62 @@ Look exactly, at the CONCEPT_beneath_the_WORDS, is the idea.
 A fascinating **TOKEN-ENGINE**, running all_words_of_humanity, for Social_Phrases. It did not turn out as expected. 
 
 
----
 <br>
 
-### CORE_TOKENZ
+---
 
-aAWAa
-aWISDOa
-aEXTRA  
+# CORE-TOKENZ
 
-aCHOOZEa
-aFOCOa  
-aSEEKa  
+<br>
 
-aSOCIOa 
-aLIMITa 
-aNEUTRa
+- aAWAa
+- aWISDOa
+- aEXTRA  
 
-- aEnandaDissa --- aSparkaDarka
+- aFOCOa  
+- aSEEKa  
+- aCHOOZEa
 
-aNONa
+- aSOCIOa 
+- aRIPPLa
+- aREFLECTa
+- aLIMITa 
 
-aREACTa
-aRESPONZa
+- aNONa
+- aSparkaDarka
+- aCAUZEa
+- aFORCEa
+- aEnandaDissa 
+- aNEUTRa
 
-aINVERZa
-aREVERZa
-aPROJECTa
+- aREACTa
+- aRESPONZa
 
-aREFUZa
-aINSISTa
-aRETALIa
-aSUPPRESSa
+- aREPETITa
+- aPARROTa
+- aROBOTa
 
-aCONSTRUCTa
-aRECOLLECTa
+- aINVERZa
+- aREVERZa
+- aPROJECTa
 
-aDISTORTa 
-aDISTRACTa
-aDISCEPTa
+- aREFUZa
+- aINSISTa
+- aRETALIa
+- aSUPPRESSa
 
-aTANGENTa
-aEnTangenta
-aDisTangenta
+- aCONSTRUCTa
+- aRECOLLECTa
+
+- aDISTORTa 
+- aDISTRACTa
+- aDISCEPTa
+
+- aCONFUZa
+- aILLUZa
+- aTANGENTa
+
+All these, are the measurable facets of `~aPRISMaWORDZa~`
 
 #### REMARKABLE CHARACTERISTICS
 
@@ -286,23 +310,30 @@ So much, possibly, the most_important_words_compiled_by_humanz_alltime.
 
 Concepts measurable by linguistic counts.
 
-It reveals a PRISM_of_aWORDZa:
+It reveals `~aPRISMaWORDZa~`:
 
 a) depth: we_say_things_we_do_not_understand.
 
 b) depth: we_do_not_evaluate_CONCEPT_under_WORDS.
 
-It was shocking.
+It was shocking. Also,
 
-Many more major breakthroughs follow directly after.
+c) depth: add_words_add_CONCEPTS, or exact opposite.
 
-c) temperature or REFLECTION: that CONCEPTZ reflect ACTUAL_REALITY.
+Many more major breakthroughs follow directly after, like.
+
+d) temperature or REFLECTION: that CONCEPTZ reflect ACTUAL_REALITY.
+
+<br>
 
 ---
 
-Please follow the FOCUS and PRACTICE and help others find the MAGIC of aWORDZa too.
+# CONCLUSIONZ
 
-aMAGICaWORDZa - aPRISMaWORDZa.
+<br>
+Please follow the FOCUS and PRACTICE, and help others find the MAGIC of aWORDZa too.
+
+  - aPRISMaWORDZa.
 
 by ENZO ~ : ) 1/1/2020
 

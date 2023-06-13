@@ -37,6 +37,12 @@ Exactly_Opposite, is the repeated_words_of_society that do_not_reflect_actual_re
 
 ### `~aGhostaMinda~`
 
+The Actual_Limit_of_Human_Mind. 
+
+- Exactlywhere, confuzion and illuzion exist.
+
+- All the `~Affect/Effect~` ACTZ that RIPPLE and REFLECT through aSOCIOa
+
 aGHOSTa in the mind occurs, exactlywhere we believe concepts that do not reflect actual_reality.
 
 
