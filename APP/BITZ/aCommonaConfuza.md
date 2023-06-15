@@ -13,29 +13,85 @@ Taxonomy or Ontology.
 
 By articulating common confuzions, Actual_Reality can_be_known.
 
-### Articles_of_Current_Confuzion
+### Reasonable_Confuzion
+
+> If you are born into a society of actual confuzion, then it is fully reasonable to be confuzed. Reasonable_Confuzion.
+
+> If you hear a new concept, contrary to everything you've ever been told - reasonable_confuzion occurs.
+
 
 #### aTaboo_of_Confuzion
 
-The first way that we are confuzed, is when society forces minds to refuze to admit - when confuzed.
+> Where a Society actz to punish confuzion, a_Taboo_of_confuzion silently_seeds, and deep_concepts_take_root.
+
+Where one of the first ways we are actually confuzed, is when we refuze to admit we are confuzed.
+
+Exactlywhere society forces minds to insist they know, while actually confuzed.
+
+> Such actz of hiding_confuzion are aDeepaFolly.
+
+Because it seeds so many problems later, of Affect/Effect into society. And leads to many deeper concepts of confuzion_about_confuzion. Often to the maximum degree, of a_overwhelm_of_all_human_mind.
 
 #### aParrotaMentoa or aRobotaMinda
 
 The second was we are confuzed, is when a mind is taught an answer, and simply repeats it.
 Without ever actually evaluating the concept_under_words. Where the concept part_wrong we are confuzed.
 
+Observably, is a folly of a_wit_confuzed_by_arrogance - meaning: we can become so proud of ourselves for using a stick as a spear that we can be over_focused on it as the only tool. While missing the concepts of hammer and nail, and skrew and driver - all together!
+
+> This amazing repetition, of going back to what works, over and over - in the face of obvious flaw - is a_part_aFollya.
+
+Observably, is `~aRobotica~` in society - exactlywhere it is encouraged to do the same ACTZ over and over.
+
+`~aSocioaRobotica~` - is actual actz of robotic, scripted, repetition, without deviation - even in a_view_of_clear_flaw.
+
+`~aParrotaMinda~` - is actual actz of repeating what we are told, and gradually being forced to believe it - because those are the only conceptz in mind. Reinforced by a_different_is_wrong_illuzion. That basically rejects any dispute of concepts_etched_deep_into_mind. By equally flawed_excuse. Like, **"dont be so negative", or "look on the brightside"**.
+
+> These are a few, of many reliable indicators, that blurry_concepts_exist_beneath_blurry_words!
+
+
+
 #### aPretendaKnowa
 
-When we forget that we were repeating the answer, and overlook that we never actually evaluate the concept, then we begin to pretend to know a depth of knowledge, that is never actually there.
+- When we forget that we were repeating an answer, we were told, but never check our selves.
+- When we overlook that no mind, has actually fully articulated the concept.
+- We begin to pretend to know a depth of knowledge, that is never actually there. 
+- Especially if society is flawed in actz of: 
+- reward_of_fuzzy_answers. And,
+- shame_for_curiosity
+
+> It is reasonable for minds in such societies_of_disCuriosity, to aCHOOZEa to aPretendaKnowa.
 
 
-#### aBroadaBrusha or aBineality.
+#### aBroadaBrusha or aBineality. 100_percent_and_absolutely
 
-When we say social~phrases like,  "I agree 100%" or "absolutely", this is often part_flawed. In these ACTZ we paint the concepts with a broad brush, covering cracks in logic - that reveal themselves again over time. Similarly, the viewz of all-right and all-wrong are often partly_flawed. To look at the world with such VIEWZ, is called a_BINARY_REALITY.
+When we say social~phrases like,  **"I agree 100%" or "absolutely"**, this is a reliable indicator of likely part_flawed concepts_beneath_words. 
+
+Because, in these ACTZ we paint the concepts with a broad brush. Paint_broad_brush. Covering cracks in logic. Gloss_over_detail. These ACTZ are discouraging, because they are a_seed_for_conflict_later. Similarly, the viewz of all-right and all-wrong are often partly_flawed. 
+
+> Partly_Perfect and Partly_Flawed - is a better_reflection_of_actual_reality.
+
+ To look at the world with such VIEWZ, is called a_BINARY_REALITY. With a great shock, for anyone_can_see, of how common it is - once you start to measure it. '~aBlizzardAwaitsUs~` for all_human_mind.
 
 #### DEPTH_of_LOGIC and aLimitaMinda
 
-When the brain cannot hold focus on too many data points, we tend to blank out - and lose focus of everything. That is called overwhelm. And certain DEPTH_of_LOGIC can perplex many minds, creating a barrier of those concepts to be blocked from review by a significant portion of society. aLIMITaMINDa is similar in that there is an actual_limit_of_mind. Sometimes this can be on available information, or exculpatory evidence. But since we can experience overwhelm and blank_out - it is quite possible to humans to arrive at wrong_conclusions simply because they do not have TIME or FOCUS to sort through all the facts and hold all the concepts in the minds eye.
+When the brain cannot hold focus on too many CONCEPTZ, we tend to blank_out in overwhelm. An actual moment of lost_focus, where concepts are too heavy. 
+
+> Exceeds conceptual_gravity, so that the concept cannot_be_seen, with no a_spark_of_AWA_in_mind. 
+
+And certain DEPTH_of_LOGIC can perplex_all_human_minds. 
+
+> Where `~aPerplexea~` is certain, but we shame ourselves into deeper confuzion.
+
+How often do minds wrongly shame themselves or others?
+
+> aWronglyShaming - creates significant barrier to all_human_mind.
+
+ Because we, can and do create actual_barriers_to_CONCEPTS. Social_Barriers_of_actz and Social_barriers_of_CONCEPTS.
+ 
+ > AllHumanzLook, exactlywhere, concepts are rejected and refused from consideration. Is a_Hallmark_ACTZ_of_aFollya.
+ 
+  Either by aTaboo, or a DisRepetition. CONCEPTS are observably blocked from VIEWZ by a significant portion of society. No shame. Is the tree ashamed to only know someone named fibonacci? Doesnt a  aLIMITaMINDa is similar in that there is an actual_limit_of_mind. Sometimes this can be on available information, or exculpatory evidence. But since we can experience overwhelm and blank_out - it is quite possible to humans to arrive at wrong_conclusions simply because they do not have TIME or FOCUS to sort through all the facts and hold all the concepts in the minds eye.
 
 #### Mistake of POSITIVITY and NEGATIVITY
 
@@ -84,23 +140,62 @@ NOTE: this is an advanced topic for later chapters, but worth a brief descriptio
 The hypothesis goes, that there is a vast majority of aDissa words, but also it appears that there is nearly enemic or mal-nourished number of words for ENCOURAGEMENT and aEna. A massive imbalance appears to exist with an enourmous number of aDissa words compared to aEna words. In addition, a good number of the aEna words that exist appear to have been distorted, or INVERTED (from the confuzion described above). So it appears, there is actual missing words for encouragement, while we exist within an overwhelm of concepts of aDissa. What could account for this? Maybe it is that we arose from a brutal species? And are still young in our awareness? Is this what the minds of 1000yrz from now will see?
 That the young human species was tilted linguistically toward distructive actz, rather than enstructive actz? By nature of our coming into education and intelligence gradually and irregularly? This is discussed at length later.
 
-Maybe they will know that with a lack of words, is a lack of concepts, and with a lack of concepts - society would be excepted to be confuzed.
+Maybe they will know that with a lack of words, is a lack of concepts, and with a lack of concepts - society would be reasonably_confuzed.
 
-#### aWrongaBossa
+#### reasonably_confuzed
 
-Authority does not do anyone a favor by twisting reality to meet personal needs. 
+At last review, Humanity is a reasonably_young_intelligence.
 
-It only seeds conflict for the future, where projected_reality can never reflect actual_reality.
+> All_human_mind is a young_intelligence. Having only awakened a few hours ago, all_human_mind is still observably drowsy. Where you can count_the_fuzzy_concepts with SOCIAL_PHRASES. 
 
-#### aWronga 
+And look for actual_concept_flaws. Where the surprise may be, that the expectation of only a few flaws - quickly turns to  actual viewz - that we_swim_an_ocean_of_conceptual_flawz. 
 
-Actually_really_wrong. Not just wrong, but offensively wrong. Discouraging concept.
+> A blizzard_of_concepts awaits all_human_mind.
 
-#### Flaw of HERO_VILLIAN, ANGEL_DEMON
+As a direct cauze_of_acting, actually confuzed_about_confuzion.
 
-The fairly obvious flaw is that it projects a static state onto a dynamic being.
+> All_Humanz_Look, a baby is reasonably_confuzed, the same as a dying person is reasonably_confuzed.
 
-Not accounting for innerstate, or exculpatory facts, but glosses over details in broad_brush binary_reality.
+#### unnecessary SHAME_of_reasonable_confuzion
+
+There is a frequent shame, observable for minds that did not know, or forgot, or saw a distortion of reality. The actual_conceptual_flaw here is:
+
+> Actual_Reality is vastly_larger than our VIEWZ of it. So SHAME of not_seeing_everything is always_a_folly, because this is the default reality, all_human_mind exists in - for all_human_time.
+
+- AllHumanzLook, there is no point, at which any human - knows everything.
+
+And this has to be true, for simple reasons - like not being able to look in your own ear to your brain.
+
+Or never knowing what is happening - at this very moment - on the exact_opposite point of earth.
+
+> There is alwayz, a_vast_blindspot for all_human_mind, indicating that shame_of_a_non_aKnowa is aFollya.
+
+`~aFollya~` actual actz of folly. `~aMaxaConfuza~`.
+
+
+#### aWronga & aWrronga & aMaxaConfuza
+
+> All_human_mind_actz_in_aWronga, far more often, than it can ever admit.
+
+Frequently_wrong. Wrong_in_multiple_viewz. Clear_on_some_aWronga_on_others.
+
+Actually_really_wrong. Not just wrong, but offensively extra_wrong. 
+
+NOTE: not pointing at where this exists. But simply saying actual_deep_wrongness hypothetically exists sometimes.
+
+> Is any mind equipped, to point exactly, at Deeply Discouraging concepts forced on others?
+
+`~aExtraWrronga~` - is the mind who commits increasing actz of discouragement, based on a_wrong_concept - that dives a continues unnecessary abuse of others in Affect/Effect and Physical/Emotional/Mental.
+
+#### Flaw of HERO_VILLIAN, ANGEL_DEMON, positive_negative.
+
+The fairly obvious flaw is that it projects a static reality onto a dynamic reality.
+
+Gloss_over_details in broad_brush, binary_reality.
+
+Not accounting for innerstate, or exculpatory facts. Not accounting for ability to change.
+
+Is actually a discouragement on doing the right thing after labeling someone bad (permanently).
 
 Labeling a person... evil... may never be totally fair. For the following reasons.
 
@@ -120,31 +215,76 @@ But if we capture these viewz, when they reflect actual_reality, then we_can_see
 
 a_clearer_reality. `~aClarieality~` Actual_Clarity_Reality
 
+#### smart_&_dumb ACTZ
 
----
+smart_&_dumb are also clearly flawed concepts for the same reasons of gloss_over_facts.
 
-`~aDoublaConfuza~`
+The common_confuzion appears to be: Smartness or dumbness is a measure of ACTZ not of PERSONA.
 
-Society is like a soup_of_confuzion. There are so many layers of different viewz. We experience overwhelm before we can account for them all. And so default to choozing the one repeated most by our society.
+> Reveal the concept flaw: that a "smart person" can do a dumb_act at any moment, and that the exact_opposite appears true simultaneously, that a "dumb person" could act with a spark of genius at any moment.
 
+> There is no such thing as a smart or dumb person - only smart or dumb ACTZ.
 
-If there are more than one confuzionz at any one time we can experience actual_double_confuzion. And can expect many minds to be perplexed. It is not often that a mind has enough clarity to see through two puzzles to a solution.
+#### TRUE_for_you_not_for_all
 
+Far too often, arguments are made from the point of personal VIEWZ. Like "it is hot in here", "no it is cold in here" - depends on where you sit! Because one seat may be in front of the cool air, while the other is in the sun. So many times the FLAW_of_CONTEXT is clearly overlooked, and useless arguments fill the air - where wizdom could have existed - but was expunged by confuzion.
 
-`~aSocioaConfuza~`
-
-It is not uncommon for entire groups of people to be aWronga about something. The biggest problem about this, is when authority insists that they are not wrong, pretending to know, and setting up those who possess actual clarity of mind - ineveitable conflict over articulations of actual_reality. We need better systems for admitting actual wrongness, without punishment or demotion or shame or bullying, so we can all convert more rapidly to reflect actual_reality. That concept is advanced, but is called `~aDebtaValidita~` actual_debt_validated.
-
-
-`~aForceaConfuza~`
-
-Sometimes confuzion is natural, like at birth. But other times society can force us  into confuzion by insisting that we memorize and repeat things that are not actual - and then threaten taboo, shaming, or silence as retaliation if we do not repeat the social_phrases as scripted. This parrot and robot behavior makes it easy to determine affiliation to the group, and outcasts for minor offenses against the will of the authority. Is it ok for humans to force others to be confuzed against their will? Where does this happen? How? And what is the Affect/Effect?
+One of the most common examples of true_for_you_not_for_all is on `~aToxicaSocioa~`. Where one person may clearly experience a toxic situation in society, the other person who cauzes the toxicity - will insist from their VIEWZ that it is not toxic at all. Convieniently leaving out the affect/effect of their own ACTZ as a cauze of discouragement for others.
 
 
-`~AntidotaConfuza~`
+#### confuzion_about_confuzion
 
-Ironically, the antidote to all confuzion is WORDZ. And for the most part it is always WORDS. Additional mechanisms are SYMBOLS and SONG_Lyrics and ART. But in all cases, we really cannot alleviate the fog of confuzion until we can put it into words that reflect actual_reality.
+Society is observably confuzed, about the degree to which all_human_mind is actually_confuzed. 
 
-> WORDZ are the antidote_of_confuzion
+> Look_how, we cannot even point to confuzionz, because at every corner of reason, is someone already there pointing directly back at you.
+
+This is the `~Social_Cacophany~` that all_human_mind is born into, and must endure.
+
+> All_Human_Mind shares the common concept, of looking up, and never_see_beyond_a_darkness.
+
+#### life_of_confuzion
+
+Count, how many human minds of all_human_time, lived life_long_confuzion?
+
+> The vast majority of all_human_mind, appears to exist in life_long_confuzion.
+
+
+
+
+
+
+## KEY MEASUREMENTS of CONFUZION.
+
+
+a) depth_of_CONFUZION.
+
+b) depth_we_say_things_we_do_not_understand.
+
+c) depth_we_do_not_see_CONCEPTZ_under_WORDZ.
+
+> sometimes actual_reality is shocking to see. 
+
+d) depth_we_avoid_to_seek_what_we_do_not_want_to_see.
+
+e) depth_add_words_add_CONCEPTS, or exact opposite.
+
+ - Many more advanced breakthroughs follow after, like snowflakes in a blizzard.
+
+f) depth_of_REFLECTION: that CONCEPTZ reflect ACTUAL_REALITY.
+
+g) depth_of_aPretendaKnowa
+
+h) depth_of_illusion
+
+i) depth_of_CONFUZION_by_aINVERZIONZ
+
+j) depth_of_CONFUZION_by_aOMISSIONZ
+
+k) depth_of_CONFUZION_by_aDISCEPTIONZ
+k) depth_of_CONFUZION_by_aPRETENDaKNOWa
+k) depth_of_CONFUZION_by_ILLUZIONZ
+k) depth_of_CONFUZION_by_aDisReflectaz
+
+
 
 

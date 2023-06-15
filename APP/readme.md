@@ -7,29 +7,43 @@ Hello!
 
 <br>
 
-- Artificial Intelligence (AI)
+Actual_Word_Prizm - new WORDZ, to spark new articulation of CONCEPTZ into minds
 
-- Large Language Model (LLM)
+<br>
+
+- inspired by Artificial Intelligence (AI)
+
+- custom Large Language Model (LLM)
 
 - for Natural Language Processing (NLP)
 
-- `~WORD_GAME~`
+### 3 Uses of Language Model of SOCIAL~PHRASES.
+
+- SONG_LYRICS with SOCIAL_PHRASES
+  - `~aSOCIAL_PHRASEa~`: advanced ways to rhyme song lyrics.
+- `~WORD_GAMES~`, `~aWORDaGAMEa~`: 
+  - advanced ways to GAMIFY phrases and symbology.
+- `~aPRIZMaWORDZa~`: conceptz for actual_good_of_humanity.
 
 <br>
 
 ----
 <br>
 
-## `~aWORDZa~` & `~aWORDaGAME~` 
+## `~aWORDZa~` & `~aWORDaGAME~` & `~aPRIZMaWORDZa~`:
 <br>
 
-Libs of **ENHANCED_ENGLISH**, for *Ai, LLM, & NLP*.
+Libs of **ENHANCED_ENGLISH**, for *Ai, LLM, & NLP* feedback-loop.
 
-> HELP others PRACTICE_MAGIC_of_aWORDZa! 
+> HELP others PRACTICE_NON-MAGIC_of_aWORDZa! 
 
-> With `~aBetterWordza~`, and `~aWORDaGAME~`.
+For the good of your own clarity of actual reality, or choice to not encourage clarity.
 
-> USE a *SYSTEM & PROCESS*, *TAXONOMY & ONTOLOGY*,
+> With `~aBetterWordza~`, and `~aWORDaGAMEa~`, & `~aPRIZMaWORDZa~`.
+
+### What is it?
+
+> Simply a *SYSTEM & PROCESS* of WORDZ to create CONCEPTZ, *TAXONOMY & ONTOLOGY*,
 
 > anyone_can_see, new *CONCEPTZ & VIEWZ* - instantly!
 
@@ -59,12 +73,12 @@ As you can see, aMIXCase is used as a *Name-Convention*. Also below, is an examp
 ----
 <br>
  
-#### EXAMPLE-SYNTAX: 
+#### EXAMPLE-SYNTAX & ARTICULATIONZ: 
 <br>
 
 **'a'** : is called **LITTLE-A** 
-- as a *PREFIX* means **'ACTUAL'** 
-- as a *POSTFIX* means **'ACTZ'** 
+- as a *PREFIX* means **'ACTUAL'** articulation.
+- as a *POSTFIX* means **'ACTZ'**  articulation.
 - `~aSUFFIXa~`
 
 **'z'** : is called **LITTLE-Z**
@@ -80,12 +94,17 @@ As you can see, aMIXCase is used as a *Name-Convention*. Also below, is an examp
 - *very important*. To,
 - **ADD_METADATA_MEANING** (code example below). 
 - **ADD_NAME_CONVENTION** (brevity, self-descriptive, below)
+
+NOTE: an advanced example of the three letters above, is that it uses linguistics ARTICULATIONZ. Enhancing aspects of WORDS, with added expression. Exactlytwhere, concteptz have Yet_to_be_ARTICULATED. Addressed later. Specifically, the 'a' as an articulation - is a_confuzion_avoidance_mechanizm. 
+
+
+
 <br><br>
 
 #### EXAMPLE-METADATA 
 <br>
 
-For most artificial intelligence, natural language tokenizers, META-DATA-CONTEXT, is a *common requirement*, for WORDS and PHRASES. This is what aMAGICaWORDZa does, but in a different (unique) direction. BECAUSE aWordza started off as defining SONG~LYRICS, the Meta-Data "beneath" the words - is unique. 
+For most artificial intelligence, natural language tokenizers, META-DATA-CONTEXT, is a *common requirement*, for WORDS and PHRASES. This is what aNONaMAGICaWORDZa does, but in a different (unique) direction. BECAUSE aWordza started off as defining SONG~LYRICS, the Meta-Data "beneath" the words - is unique. 
 
 > Instead of CONTEXT, aWordza uses CONCEPTZ.
 
@@ -120,19 +139,29 @@ With the definitions above, we coin 2 camel-case TOKENZ below.
 
 Where anyone_can_see, from WORDZ, CONCEPTZ spark into mind. 
 
-> From WORDZ, `~CONCEPTZ~`.
+> From WORDZ, we paint `~CONCEPTZ~` in all_minds.
+
+we_paint_conceptz_in_all_human_mind - discovered by SONG_LYRIC, SOCIAL_PHRASES.
 
 ---
 
-> 1) `~aWORDZa~` - actual, clarified and remarkable, words of human ACTZ.
+> 1) `~aWORDZa~` - actual, clarified and remarkable, ACT of words. Or the ability to speak.
 
 - pronounced: [ah-words-ah].
 
-- a PROCESS & PRACTICE.
+> a simplified enhancement of language.
 
-- a SYSTEM & TOKEN-ENGINE.
+> of PROCESS_&_PRACTICE, to turn WORDS into WORDZ & CONCEPTS into CONCEPTZ.
 
-It may seem like nothing, but please DO NOT UNDERESTIMATE the **ONTOLOGY & TAXONOMY**.
+- WORDZ_&_CONCEPTZ
+
+- TOKEN_&_TOKENIZER
+
+- SYSTEM_&_ENGINE
+
+It may seem like nothing, but please DO NOT UNDERESTIMATE **ONTOLOGY & TAXONOMY** produced. A vast treasure-trove of language awaits you! Highly transformational - for those who seek it. with express purpose of providing actual_good_for_humanity, not for any mind who may actually_choose_to_avoid_clarity, or of actual_limited_clarity in any way.
+
+NOTE: many advanced topics on the concept of aCLARIa. And exactly how to measure if something is good for humanity or not. Spoiler alert it is Encouragement. ExactOpposite of positive hero, antagonist/protagonist but actual_ACTZ_of_Encouragement. Humanity will do well to seek clarity, with freedom from: toxic_clouds of smoke, fog, ashes, and mud. 
 
 > 2) `~aWORDaGAME~` - actual game (PRACTICE/PROCESS) of creating vast new language.
 
@@ -312,18 +341,6 @@ Concepts measurable by linguistic counts.
 
 It reveals `~aPRISMaWORDZa~`:
 
-a) depth: we_say_things_we_do_not_understand.
-
-b) depth: we_do_not_evaluate_CONCEPT_under_WORDS.
-
-It was shocking. Also,
-
-c) depth: add_words_add_CONCEPTS, or exact opposite.
-
-Many more major breakthroughs follow directly after, like.
-
-d) temperature or REFLECTION: that CONCEPTZ reflect ACTUAL_REALITY.
-
 <br>
 
 ---
@@ -331,9 +348,11 @@ d) temperature or REFLECTION: that CONCEPTZ reflect ACTUAL_REALITY.
 # CONCLUSIONZ
 
 <br>
-Please follow the FOCUS and PRACTICE, and help others find the MAGIC of aWORDZa too.
+Please follow the FOCUS and PRACTICE, and help others find the NON_MAGIC_of_aWORDZa too.
 
   - aPRISMaWORDZa.
 
-by ENZO aENZOa (actual actz of remarkable encouragement) ~ : ) 1/1/2020
+by ENZO 
+
+`~aENZOa~` (actual actz of remarkable encouragement) ~ : ) 1/1/2020
 
