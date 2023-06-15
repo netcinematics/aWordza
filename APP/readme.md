@@ -5,6 +5,8 @@ Hello!
 | <kbd> <img src="imgz/prysm.png" style="border-radius:50%; padding:1em; margin:1em;" /> </kbd> |
 |-|
 
+
+
 <br>
 
 Actual_Word_Prizm - new WORDZ, to spark new articulation of CONCEPTZ into minds

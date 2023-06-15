@@ -30,7 +30,7 @@ Exactlywhere society forces minds to insist they know, while actually confuzed.
 
 > Such actz of hiding_confuzion are aDeepaFolly.
 
-Because it seeds so many problems later, of Affect/Effect into society. And leads to many deeper concepts of confuzion_about_confuzion. Often to the maximum degree, of a_overwhelm_of_all_human_mind.
+Because it seeds so many problems later, of Affect/Effect into society. And leads to many deeper concepts of confuzion_about_confuzion. Often to the maximum degree, of a_overwhelm_of_all_human_mind. With one of the deepest of all human tragedies, of wizdom_discarded_in_favor_of_false_glory.
 
 #### aParrotaMentoa or aRobotaMinda
 
@@ -99,19 +99,35 @@ Often we can hear thought leaders in society saying phrases like, "i dont want t
 
 # THE_MATRIX_of_EN_an_DIS or THE_MATRIX_of_aSparka_and_aDarka.
 
-Instead of putting the emphasis on "positivity and negativity" society would be much more correct to emphasize "encouragement" "discouragement" for the following overlooked ACTZ. 
+Instead of putting the emphasis on "positivity and negativity" society would see benefit to emphasize "encouragement" "discouragement" for the following reason. 
 
 Sometimes we actually discourage good.
 Sometimes we actually encourage bad.
 
 These ACTZ (when they actually occur) are called aINVERZIONZ.
 
-And they appear to cauze all_human_mind all sorts of enigma, social_dillema, and affect/effect tragedy.
+And they appear to cauze all_human_mind reasonable_confuzion, social_enigma, social_dillema, and affect/effect tragedy of downstream_actz.
 
-The ACTZ we so commonly reference in partial_wizdom of "positivity", "negativity" trope is:
+The ACTZ we common_confuze_by_inverzion is visualized by a_MATRIX_of_ACTZ:
 
-Sometimes we actually encourage good.
-Sometimes we actually discourage bad.
+| <kbd> <img src="imgz/MATRIX_EN_AND_DIS_1_2020.png" style="border-radius:50%; padding:1em; margin:1em;" /> </kbd> |
+|-|
+
+
+1) `~aEna~` : Sometimes we actually_encourage_good. "positivity", "hero"       a_Ena (aEnaEn)
+2) `~aDisa~`: Sometimes we actually_encourage_bad. "negativity", "villian"     a_Dissa (aEnaDis)
+
+- AllHumanzLook, two a_exact_opposite_inversionz exist.
+
+> aInverzion_of_Good_&_aInverzion_of_Bad
+
+3) `~aDissaEna~` : Sometimes we actually_discourage_good. "bad_negativity"  aInverzaDissaa (aDissaEn)
+4) `~aEnaDissa~` : Sometimes we actually_encourage_bad.   "bad_positivity" aInverzaEna (aEnaDissa)
+
+
+| <kbd> <img src="imgz/MATRIX_EN_AND_DIS_2_2020.png" style="border-radius:50%; padding:1em; margin:1em;" /> </kbd> |
+|-|
+
 
 NOTE: we are NOT trying to measure good or bad <yet> just defining it where it actually occures in reality (whether we know it or not). Measurement of actual_good and actual_bad occurs later, in advanced topics, but we do not use the words good and bad, because they are too diluted.
 
@@ -249,12 +265,39 @@ Count, how many human minds of all_human_time, lived life_long_confuzion?
 > The vast majority of all_human_mind, appears to exist in life_long_confuzion.
 
 
+#### wrong_measure_of_confuzion. wrong_measure_of_wizdom
 
+Observably, we can reasonably_confuzed, to see someone elses success at concepts - that are actually flawed.
+
+Because then we mis-attribute wizdom to someone who is rich and successful. But often, this is not wize concepts underneath words, but the result of an acually flawed social system. How many minds would be able to decipher such an actual_reality? Not many. So we can see a fish swims upstream because it is compelled to, not because it is wize.
+
+Humanity has a vast array of compusions to act. Where actz are not driven by wizdom, but by anything else.
+
+- We can measure wizdom by the correct repetition of words.
+
+- We can measure wizdom by the size of a bank account.
+
+- We can measure wizdom by success.
+
+But all of these MEASURES, conceal rather obvious flaws. 
+
+> a_better_measure of wizdom or confuzion - is actual_clarity_of_mind.
+
+> Just because an athelete is an amazing athlete, does not make them a good parent or teacher.
+
+> Just because a person is wealthy with resources, does not make them wealthy in mind.
+
+So with great irony, exactlywhere we_measure_wizdom_wrong, we_measure_confuzion_wrong too.
+
+> Wherever the measure_of_confuzion is inverted, to be the measure_of_wizdom - that is actual_illuzion.
+
+The BEST_MEASURE_OF_CONFUZION - is a_low_gravity_number_of_words, with blurry_concepts_beneath_words.
+
+The BEST_MEASURE_OF_CLARTIY - is a_high_gravity_number_of_words, that reflect_actual_reality_well. With  clear_concepts_beneath_words.
 
 
 
 ## KEY MEASUREMENTS of CONFUZION.
-
 
 a) depth_of_CONFUZION.
 
