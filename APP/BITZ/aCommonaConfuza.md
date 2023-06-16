@@ -302,6 +302,23 @@ thoughtless, heartless, senseless, emotionless.
 > All of these are discouraging - that is the measure.
 
 > silence is discouraging
+> heartlessness is discouraging
+> senselessness is discouraging
+> emotionlessness is discouraging
+> thoughtlessness is discouraging
+> voicelessness is discouraging
+
+> actual_confuzed_society or actual_illuzion_society is discouraging
+
+> force to accept actual_confuzion or actual_illuzion as aFacta is discouraging for actual_reality.
+
+> illuzion_as_aFacta only seeds inevetable discouragement to the young mind who sees actual_reality and choozes to see actual_reality.
+
+> to actual_illusion, silence, is not only discouragement - but also observable, repetititive a_self_tragedy.
+
+If confuzion is rising, and illuzion is increasing, how can this be measured?
+What is correct response actz to actual_increase_confuzion?
+> No human mind is immune to confuzion. All_human_mind can exist in actz_of_confuzion at any moment, and this is not the problem, because we reflect on confuzion to learn actual_reality, the problem is when we are unable to reflect on actual_reality, and actual_insist_wrongness_is_rightness, which is cauze of diluted_factz for all_human_mind.
 
 
 ## KEY MEASUREMENTS of CONFUZION.
