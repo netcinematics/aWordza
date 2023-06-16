@@ -296,6 +296,13 @@ The BEST_MEASURE_OF_CONFUZION - is a_low_gravity_number_of_words, with blurry_co
 The BEST_MEASURE_OF_CLARTIY - is a_high_gravity_number_of_words, that reflect_actual_reality_well. With  clear_concepts_beneath_words.
 
 
+## anti-hero
+thoughtless, heartless, senseless, emotionless. 
+
+> All of these are discouraging - that is the measure.
+
+> silence is discouraging
+
 
 ## KEY MEASUREMENTS of CONFUZION.
 
