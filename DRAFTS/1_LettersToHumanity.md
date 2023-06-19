@@ -225,4 +225,6 @@ All of those words, will be stored online in a Taxonomy and Ontology. And this i
 
 Welcome to aWordza! Admittedly, the SYNTAX is dry, but later - it gets FUN! Like riding a bicycle: at first scary, then exciting, and eventually boring. The act of WORDCRAFTING… can be deeply ENLIGHTENING. The results are continually more profound than comprehensible. To see, please try, and share it with friends!
 
+
+
 6/1/2023 Enzo ~ : )

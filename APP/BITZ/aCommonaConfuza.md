@@ -156,7 +156,9 @@ NOTE: this is an advanced topic for later chapters, but worth a brief descriptio
 The hypothesis goes, that there is a vast majority of aDissa words, but also it appears that there is nearly enemic or mal-nourished number of words for ENCOURAGEMENT and aEna. A massive imbalance appears to exist with an enourmous number of aDissa words compared to aEna words. In addition, a good number of the aEna words that exist appear to have been distorted, or INVERTED (from the confuzion described above). So it appears, there is actual missing words for encouragement, while we exist within an overwhelm of concepts of aDissa. What could account for this? Maybe it is that we arose from a brutal species? And are still young in our awareness? Is this what the minds of 1000yrz from now will see?
 That the young human species was tilted linguistically toward distructive actz, rather than enstructive actz? By nature of our coming into education and intelligence gradually and irregularly? This is discussed at length later.
 
-Maybe they will know that with a lack of words, is a lack of concepts, and with a lack of concepts - society would be reasonably_confuzed.
+Maybe they will know that with a lack of words, is a lack of concepts, and with a lack of concepts - society would be reasonably_confuzed. Also, the inverzion of reasonable_confuzion exists as actual_extra_awareness. Similar to the actz_of_confuzion is aExactaOpposa, with actz_of_clarity and actual_extra_awareness. A key took for awareness_of_extra_clarity is PRACTICE of `~aPRIZMaWORDZa~`.
+
+> Using SOCIAL~PHRASES, we can peer into all_human_mind, as `~aPRIZMaWORDZa~`.
 
 #### reasonably_confuzed
 
@@ -319,6 +321,103 @@ thoughtless, heartless, senseless, emotionless.
 If confuzion is rising, and illuzion is increasing, how can this be measured?
 What is correct response actz to actual_increase_confuzion?
 > No human mind is immune to confuzion. All_human_mind can exist in actz_of_confuzion at any moment, and this is not the problem, because we reflect on confuzion to learn actual_reality, the problem is when we are unable to reflect on actual_reality, and actual_insist_wrongness_is_rightness, which is cauze of diluted_factz for all_human_mind.
+
+#### all_difference_is_wrong & a_retaliate_not_learn
+
+When anyone reacts to a difference to see it as wrong, before evaluation, articulation - is discouraging ACTZ for everyone. And when anyone reacts to a difference by retaliation not listening and learning - is discouraging ACTZ for everyone.
+
+#### same_wrong_from_both_arguments
+
+Sometimes we can have 2 people arguing different words, but with the same confuzion conceptz_under_wordz. It is astonishing to see. But the discouraging ACTZ of dismissiveness and silence or distortion are examples of this. It is these discouraging ACTZ: where the bully bullies, and then the bullied bullies the bully. Clearly, we need better articulation for such ACTZ.
+
+#### `~aDissaDevolvya~` & `~aDissaDistortya~` & `~aDissaSuppressUs~`
+
+Some minds are born into actual_confuzed_society. Of those minds, obervably rare is the actual_spark_of_awareness of the actual_wrongz_of_society. Even rarer, is the successful actz_of_refuting_actual_wrongz_of_society. 
+
+> all_human_minds, experience reasonable_confuzion of the social_mind, that we are randomly born_into.
+
+If you EXIST, in society of consistent_social_encouragement, reasonable_confuzion would exist in viewz, as to the fact that consistent_social_discouragement EXISTS at all. Then it would take OBSERVATION and ARTICULATION to see the myriad of ACTZ that AFFECT/EFFECT other minds (not ours). Observably, current_human_mind is easily tripped up on this common_confuzion. 
+
+> Anyone_Can_See, aTRAGICa where it actually_exists, but also many aChooze_to_Not_See, and some aChooze_to_retaliate, in successive degrees_of_confuzion and escalated degrees_of_illuzion.
+
+Where this happens, actual_tragic_actz exist, and enevitably wait for all_human_articulation of the non_visible_actual_reality.
+
+Additional measures of actual_social_mind is, exactlywhere:
+
+- we_actually_devolve_actz
+- we_actually_distort_actz
+- we_actually_reject_factz
+- we_actually_discourage_wizdom
+- we_actually_suppress_others
+- we_actually_devolve_others
+
+NOTE: this is NON_SPECIFIC_INFERENCE, NOT saying exactlywhere this happens - but a simple reference to where it hypothetically_exists, and sometime in someplace - reflects_actual_reality. Where all_human_mind is aware of it and NOT. That is `~aPRIZMaWORDZa~`.
+
+
+#### common_confuzion_doctors_confuzed_too
+
+  A very important confuzion that is very challenging - is actual_confuzion_by_authority.
+
+  It is non_intentional, actual_honest_error, of spectacular_consequence in AFFECT_&_EFFECT.
+
+  Despite obvious factz to the opposite, we_cannot_see. 
+  
+  We can actually_over_trust in actual_confuzed_authority, quite easily - because we_want_to_believe.
+
+  > NATURALLY, its starts as a guess. 
+  
+  And of course we_guess_wrong_the_first_time. 
+  
+  And we_self_shame_when_we_shouldnt
+
+  And we begin to become over_confident_in_repetition and over_confident_by_echo.
+
+  And over_confident_by_avoidance, and distance
+
+  and over_confident_by_silence.
+
+  And over_confident_by_authority_disresponsibility. 
+  
+And under_confident_by_shame_when_we_shouldnt.
+
+  And under_confident_by_taboo.
+
+  And under_confident_by_mind_blindness. 
+
+> NATURALLY, at_first_all_human_mind_cannot_see, then for some, we_can_see.
+
+#### actual_social_confuzion and actual_social_illuzion
+
+> It starts with a guess, that is validated, but never evaluated - just iterated - until it 
+
+breaks_against_actual_reality.
+
+NATURALLY, our society favors confidence, and results, and social-support.
+
+If you have those things, actually_wrong_conceptz can be brought_with_authority - and deeply_adopted_by_society.
+
+Exactlywhere, society exists in actual_wrongness, there is active ongoing consequence - of actual_double_confuzion
+
+Here is `~aDoublaWronga~`
+
+1) society has actual_wrong_concepts. `~aSocioaWronga~`
+
+2) most people `~aCannotSee~` aFlawz - often becauze_of_actual_NON_EVALUATION
+
+   - in `~aNeverEvaluates~`, `~aSocioa~` can go robotic, automatic, polluted - and exactOpposite.
+
+   - `~aDissaCurioa~`, `~aDissaQuerioa~`, `~aDissaMentoa~`
+
+- What of the minds who chooze_to_see_actual_reality, in a society that actively_distorts_reality?
+
+- Are some of us discouraged_by_confuzion, or discouraged_by_illuzion?
+
+- Do we have a right to not be discouraged_by_illuzion?
+
+Especially with new technology.
+
+> How do we answer confuzion?
+
 
 
 ## KEY MEASUREMENTS of CONFUZION.

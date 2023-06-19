@@ -66,7 +66,45 @@ It was noticed that the SYSTEM, or WORD-ENGINE, could work in 2 ways.
 
    > We must FIRST_QUESTION actual_reality, and PRETEND_TO_KNOW_IT, before we can see our blindspots of folly, and reflect on actual_reality, MORE_CLEARLY, by contrast, and then exists a long-tail, of NeverFullyKnow, of what exists directly behind our VIEWZ. Like the blindspot of staring at a blackhole, the distortions around the edges - give tremendous details - of what exists in the distance. 
 
+----------
 
+## METHODOLOGY
+
+Look more carefully at words, and evaluate concepts underneath.
+
+In AI, this is a TASK to add CONTEXT to TOKENZ as METADATA.
+
+And was the inspiration to apply the CONTEXT_METADATA,
+
+from the programmatic realm to the linguistic realm.
+
+With great irony, the attempt to solve computer_context, something spectacular about humanity.
+
+> The reality that all_human_concepts, are more blurry_&_fuzzy as a result of our language, existant as a "patchwork" innovation.
+
+> better_wordz is actual_clear_reality, because it forms better_conceptz_beneath_wordz
+
+
+## TAXONOMY & ONTOLOGY
+
+A heirarchical structure developed across thousands of new words.
+
+The TAXONOMY is oriented by MATRIX_of_aEn_and_Dis, after realizing that 
+
+> Viewz of "positivity" and "negativity" are a binary view, that
+> does not reflect_actual_reality as well as `~aEn~` and `~aDis~`.
+
+The ONTOLOGY is a minimal SYNTAX and NAME-convention:
+
+- to enhance_english with fewest words and letters
+
+- with self_descriptive_word_ability to be easy to learn
+
+- with easy word_combine_ability, 
+
+- as a repeatable SYSTEM and PROCESS ( token_engine ) 
+
+> to better_name every past, current and future, concept_beneath_words
 
 
 
