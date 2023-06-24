@@ -106,6 +106,7 @@ The ONTOLOGY is a minimal SYNTAX and NAME-convention:
 
 > to better_name every past, current and future, concept_beneath_words
 
+> `~aEnanDis~` is an actual profound breakthrough.
 
 
 6/4/2023 Enzo ~ : ) 
