@@ -44,6 +44,12 @@ Why?
 
 > Becauze, we_can_learn_from_mistakes, or we can reject them, and avoid_seeing_mistakes
 
-That seems to be the VICE_GRIP_LOGIC that holds the SOLO_FOCUS of vast majority of all_human_mind.
+Refuse_admit_mistakes, seems like a VICE_GRIP_LOGIC holding SOLO_FOCUS of vast majority of all_human_mind.
+
+`~aMistakea~` is to be expected, but `~aTragicaMistakea~` is aChozen_by_insista_non_a_mistakea,
+
+This actual act makes mistakes tragic, because we can repeat the folly_of_mistaken_confidence, and under_evaluation_of_actual_reality, for many generations.
+
+
 
 

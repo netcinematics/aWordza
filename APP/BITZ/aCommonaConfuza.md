@@ -324,11 +324,150 @@ What is correct response actz to actual_increase_confuzion?
 
 #### all_difference_is_wrong & a_retaliate_not_learn
 
-When anyone reacts to a difference to see it as wrong, before evaluation, articulation - is discouraging ACTZ for everyone. And when anyone reacts to a difference by retaliation not listening and learning - is discouraging ACTZ for everyone.
+When anyone reacts to a difference to see it as wrong, before evaluation, articulation - is discouraging ACTZ for everyone. And when anyone reacts to a difference by retaliation not listening and learning - is discouraging ACTZ for everyone. aRootCauze_of_poly_confuza for society.
 
-#### same_wrong_from_both_arguments
+#### discouragement_by_aPolyConfuza
+
+> Many confuzions threaded together is like a chain binding up concepts of the mind. 
+
+Rendering, ability to think... non_moveable. Where deep tragedy of existence, 
+is aNonaVizibla, in addition to a_life_long_affliction.
+
+> The only way out, of `~aNonViziblaConfuza~` is to name_it_well, aBettaWordza.
+
+This concept (of non_visible_confuzion) is quickly dismissed in current_society, as falsly_non_important - which is the exact mistake we make - to not_clear_up_confuzionz.
+
+> Never_blindly_believe_in_anything, becauze it alwayz_changez, and afalseBelief, keepz_a_mind_stuck_in_view.
+
+> All_CONZEPZ must be named_well, else they never_be_known. Simple as that.
+
+`~aStuckaMinda~` - not this because too_offensive, do_not_focus_on_mind_as_root_cauze_but_viewz 
+
+`~aDissaVIEWZa~`
+
+`~aStuckaVIEWZa~`
+
+`~aGunkaVIEWZa~`
+
+`~aBunkaVIEWZa~`
+
+aBunka, aGunka, aFoggya, aSmoggya, aGroggya, aBlurrya, aBlearya.
+
+`~aFuzzyaVIEWZa~`
+
+`~aFoggyaVIEWZa~`
+
+`~aEnsteadTry~`:
+
+`~aPolyaVIEWZa~`
+
+`~aExtraVIEWZa~`
+
+`~aEnaVIEWZa~`
+
+
+## aGRANDaPARADOXa
+
+Unbelievable thing, about wordz that self_describe, is that as soon as you `~aCanSee~` the word, the CONCEPTZ pass_into_mind_as_aSparka.
+
+That point alone is a SIGNIFICANT_ENHANCEMENT_of_ENGLISH. But there are many more...
+
+> Where aGRANDaPARADOXa, appears exactly everywhere.
+
+Just as, the sun_and_photonz_out, is aExactaOpposa, of blackhole_and_photonz_in... so too - INVERZIONZ appear at every level, all the way down to chemistry, electricity, biology, and to great_surprise such a_duality_exists in All_Human_ACTZ. 
+
+> Exactlywhere, actz_of_kindness_&_aWizdoa or actz_of_blind_rage, between_is_an_inverzion to exact_opposite.
+
+`~aInverza~` - actual act of exact_opposite inversion... of anything_&_everything, or all_existenze
+
+AllHumanzLook, at the cauze of argumentz, disputez, eruptionz, interruptionz,  distortionz, disceptionz, confuzionz, illuzionz, bitterness - anyoneCanSee, is all_inverzionz. Wthere two_opposite_conceptz_collide. And a_stupify_all_humanity_all_time or all_time_up_until_now. Until our aFollya is put into EXACT_WORDZ. aBetterWORDZ.
+
+> ExactlyBecauze, actz to disagree, condemn, dissmiss, deflect, distort, and fight - we_never_learn!
+
+AllHumanzLook, how the cauze of all_dispute appears to be a_deep_confuzion.
+
+AllHumanzLook, how the ultimate failure of all_human_mind, is to make a_clear_mistake, from a_clear_awronga, then to become FALSLY_ASHAMED, FALSLY_BLAMED, and so FORCED_to_TABOO, DENY_a_SPARKA, REJECTED_CONZEPTZ, actual_loss_of_wizdom, without ever knowing it, with a_focus_firm_on_confuzion, and a_focus_firm_on_illuzion.
+
+> ExactlyWhere, the a_focus_on_aEn never actually occured, was actually_never_seen, aNeveraSparka.
+
+aInterrupta, aDisrupta, aErupta, aInverza, aDistorta.
+
+aPolyConfuza, can be non_vizible, systemic and total. ByNature a process of `~aDissiveness~`, has a curious way of a_spiral_down, to a_deep_illuzion. 
+
+> ExactlyBecauze, all_effort_to_distort_actual_reality.
+
+#### confuza_by_awronga
+#### confuza_by_arepetoa
+#### confuza_by_afalza
+#### confuza_by_apretendaknowa
+
+#### confuza_by_afalza_equivalence
+
+#### confuza_same_wrong_from_both_arguments
 
 Sometimes we can have 2 people arguing different words, but with the same confuzion conceptz_under_wordz. It is astonishing to see. But the discouraging ACTZ of dismissiveness and silence or distortion are examples of this. It is these discouraging ACTZ: where the bully bullies, and then the bullied bullies the bully. Clearly, we need better articulation for such ACTZ.
+
+#### confuza_defence_of_overthinking
+
+The problem with this confuzion is clear:
+
+> the consequences of overthinking are generally less dangerous than underthinking.
+
+1) The consequences of overthinking include stress and loss of time. 
+
+Maybe the stress and time is not because thinking is bad, but because the thinking_is_actually_mistaken.
+
+And there EXISTS an actual_better_way, but we just have not_yet_spark_the_concept_into_mind.
+
+Which causes all kinds of confuzion_in_society as some minds stick_to_repetition, and some minds try to point_out_actual_flaw, where some minds act in actual_unfair_rejection, actual_unfair_retaliation, and actual_unfair_dismissal. 
+
+> The consequences of underthinking_human_mind are historically much more tragic than overthinking_human_mind.
+
+2) Overall, if aHumanzLook at all_confuzion, all_illuzion, all_suppression, and all_disequity, anyone_can_see a common theme of underthinking, behind_a_veil_of_taboo, to justify_actual_unfair_actz. Whereas, the exact opposite is exact_opposite affect_&_effect. aHumanzLook how overthinking, in general, does not appear to play much role in all_confuzion, all_suppression, all_suffering. 
+
+> Overthinking appears to be a reasonable response to Underthinking.
+
+More than by_Nature, overthinking appears to be a forced response, of having to answer for actual_damage_of_underthinking. Which obscures a fascinating insight beyond aDoublaConfuza, of aDoublaNonaReflecta.
+
+- double_confuzion is where a) what is wrong here b) how do I stop the discouragement, and turn to aEn.
+
+- double_non_reflection (is super interesting) in that the person who ACTZ in DISCOURAGMENT - does so because they think they are helping, but if it is not accepted - it didn't help. 
+
+a) the first non evaluation, is the message not being tailored correctly to the receiver.
+
+b) the second evaluation, may be that the message itself is wrong.
+
+So what anyone_can_see, 
+
+a) we do not evaluate the best way to say things 
+
+b) often because we did not evaluate the concept_beneath_words to begin with.s
+
+Most of us are making the mistake of faithfully_repeating_bad_advice_without_ever_reflection
+
+#### `~aNevera~`
+
+- actual actz that never occur.
+
+`~aNeveraSparka~` and `~aNeveraReflecta~`
+
+> If a mind never actually reflects on conceptz_beneath_wordz, then that mind is also actually_blocked, from seeing beyond those words! The mind can become stuck in actual_mental_repetition. 
+
+To `~aDispella~` `~aLoopaMinda~` :
+
+1) See the many CONCEPTZ in mind, that are `~aWronga~`,
+2) Remember it is by_Nature to be `~aWronga~`.
+3) Then `~aInverzeaWronga~`, or `~aReverzaWronga~` and
+4) EVALUATE_REFLECTION_of_ACTUAL_REALITY
+5) If your VIEWZ aDissaReflecta, repeat steps.
+6) If your VIEWZ aEnaReflecta actual_reality -> LEARN.
+7) And joyfully share everything you learn.
+
+`~aDispella_ToxicaMinda~`
+
+
+
+
 
 #### `~aDissaDevolvya~` & `~aDissaDistortya~` & `~aDissaSuppressUs~`
 

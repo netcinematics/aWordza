@@ -86,3 +86,30 @@ apart from `~aIllReality~` - actual_illuzion_reality, and
 
 `~aConfuzaReality~` - actual_confuzion_reality
 
+
+ A syntax, naming_convention, and a pryzm, of spectacular influence, for all_humanity - for_all_time.
+
+
+1) NODEJS LOOPS
+- open md file, or txt file, or html file
+- search for 
+a) [_] underscore words.
+b) `~...~` tilde words.
+c) errors_list of partial tokenz
+
+2) NODEJS "training" 
+- TOKENIZE search results
+- TRANSFORM data into TAXONOMY by title
+- Title is KEY for different "training" loops
+
+3) NODEJS SCRIPTS for PARSE_PIPELINE
+- parse_tokenz () 
+- index_tokenz ()
+- alpha_tokenz ()
+- prefix_tokenz ()
+- postfix_tokenz ()
+- cross_link_tokenz ()
+- all_reference_tokenz ()
+- reference_link_tokenz ()
+
+DESCRIPTION: add super~powers to tokenz (above).
