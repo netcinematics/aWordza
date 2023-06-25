@@ -260,11 +260,24 @@ This is the `~Social_Cacophany~` that all_human_mind is born into, and must endu
 
 > All_Human_Mind shares the common concept, of looking up, and never_see_beyond_a_darkness.
 
-#### life_of_confuzion
+#### a_life_of_confuzion
 
 Count, how many human minds of all_human_time, lived life_long_confuzion?
 
 > The vast majority of all_human_mind, appears to exist in life_long_confuzion.
+
+
+#### `~aStructaBrokaSocioa~`
+
+actual structure is broken in society. Things that would help people are not done.
+
+Fundamental wrongness of concept, beyond all_human_mind, and we have many aStructaBrokea
+
+`~aNonaFuncta~` `~aSelfaFuncta~` `~aNonaSocioaFuncta~`
+
+`~aDissaSocioaFuncta~` - actual discouraging social actz of affect/effect function.
+
+- example: `~aEnaStructa~` and `~aDissaStructa~`
 
 
 #### wrong_measure_of_confuzion. wrong_measure_of_wizdom
@@ -483,47 +496,56 @@ Where this happens, actual_tragic_actz exist, and enevitably wait for all_human_
 
 Additional measures of actual_social_mind is, exactlywhere:
 
-- we_actually_devolve_actz
+- we_actually_discourage_actz
+- we_actually_discourage_otherz
 - we_actually_distort_actz
 - we_actually_reject_factz
+- we_actually_deny_reality
+- we_actually_chooze_illuzion
 - we_actually_discourage_wizdom
-- we_actually_suppress_others
-- we_actually_devolve_others
+- we_actually_suppress_otherz
+> but also, we_actually_evolve_otherz too!
+- we_actually_encourage_actz
+- we_actually_encourage_otherz
+> but if we measure_actz_of_aEnanDiss, anyone_can_see, 
 
-NOTE: this is NON_SPECIFIC_INFERENCE, NOT saying exactlywhere this happens - but a simple reference to where it hypothetically_exists, and sometime in someplace - reflects_actual_reality. Where all_human_mind is aware of it and NOT. That is `~aPRIZMaWORDZa~`.
+all_time, massive_historical_viewz_of_carnal_reality
+
+for all_human_mind, where
+
+we_evolve_beyond_carnal_reality
+
+But also stuck_focused in the mind_of_our_timez.
+
+> So many other viewz to focus on, measure how often we chooze_one_focus.
+
+See_BOTH_viewz, Principle_of_BOTH.
+
+NOTE: `~aPRIZMaWORDZa~` is NON_SPECIFIC_INFERENCE, NOT saying exactlywhere this EXISTS - but a simple reference to where it a_may_exista. Where, sometime in someplace - the conzeptz_reflect_actual_reality. Where all_human_mind is aware of it and NOT. That is `~aPRIZMaWORDZa~`.
 
 
 #### common_confuzion_doctors_confuzed_too
 
   A very important confuzion that is very challenging - is actual_confuzion_by_authority.
-
   It is non_intentional, actual_honest_error, of spectacular_consequence in AFFECT_&_EFFECT.
-
   Despite obvious factz to the opposite, we_cannot_see. 
-  
   We can actually_over_trust in actual_confuzed_authority, quite easily - because we_want_to_believe.
 
   > NATURALLY, its starts as a guess. 
   
   And of course we_guess_wrong_the_first_time. 
-  
   And we_self_shame_when_we_shouldnt
-
   And we begin to become over_confident_in_repetition and over_confident_by_echo.
-
   And over_confident_by_avoidance, and distance
-
   and over_confident_by_silence.
-
   And over_confident_by_authority_disresponsibility. 
-  
-And under_confident_by_shame_when_we_shouldnt.
-
+  And under_confident_by_shame_when_we_shouldnt.
   And under_confident_by_taboo.
-
   And under_confident_by_mind_blindness. 
 
-> NATURALLY, at_first_all_human_mind_cannot_see, then for some, we_can_see.
+> by_nature, at_first_all_human_mind_cannot_see, then for some, we_can_see.
+
+> But then by_nature again, we_can_see what_society_cannot_see, but stuck, trapped helpless_to_speak_sense_to_senselessness, because we actually_do_not_have_the_words_yet.
 
 #### actual_social_confuzion and actual_social_illuzion
 
