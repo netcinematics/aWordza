@@ -565,6 +565,8 @@ Here is `~aDoublaWronga~`
 
 2) most people `~aCannotSee~` aFlawz - often becauze_of_actual_NON_EVALUATION
 
+  Then `~aRejectaWizdoa~` actual_discouragement_of_clarity
+
    - in `~aNeverEvaluates~`, `~aSocioa~` can go robotic, automatic, polluted - and exactOpposite.
 
    - `~aDissaCurioa~`, `~aDissaQuerioa~`, `~aDissaMentoa~`
